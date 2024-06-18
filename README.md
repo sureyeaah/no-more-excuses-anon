@@ -1,4 +1,4 @@
-# No more excuses Anon
+# No more excuses anon
 
 Use these problems to learn that thing you always wanted to learn but didn't know where to get started.
 
